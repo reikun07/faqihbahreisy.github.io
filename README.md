@@ -1,5 +1,5 @@
-hi all, it's me rei!
-................................
-sorry, long time no update here!
-soon! (maybe xixi)
+hi all, it's me rei!  
+................................  
+sorry, long time no update here!  
+soon! (maybe xixi)  
 ................................
